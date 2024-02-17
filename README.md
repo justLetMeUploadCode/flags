@@ -4,12 +4,12 @@ Red
 - Gold Diggers
 - Psychotic controlling behaviour
 - Hung up on Ex
-- No empathy
+- Those who believe it's always easier to feel empathy for ourselves instead of others.
 - Sees a partner as a fashion accessory
   
 Amber
 - Air head
-- Singular obsession
+- A singular obsession (Gym, Travelling, The Simpsons)
 - Owns a horse
 
 Green
